@@ -1,5 +1,5 @@
 # Playgd mobi golden dragon free credits Cheats add money Hacks codes guide
-[see here](https://fifamcheat.top/golden-dragon/)
+[see here](https://generate/award/top/golden-dragon/)
 
 
 CONNECT TO YOUR PLAYGD MOBI GOLDEN DRAGON GAME ACCOUNT
